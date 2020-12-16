@@ -39,5 +39,5 @@
 <br />
 
 
-[instagram]: https://www.instagram.com/yaroslav_gessen
+[instagram]: https://www.instagram.com/y_gessen
 [linkedin]: https://www.linkedin.com/in/ygessen
