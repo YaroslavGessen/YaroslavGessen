@@ -1,9 +1,6 @@
 ### Hi there, I'm Yaroslav!
 
-## I'm a motivated java/python developer ;)
-
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2020 Goals: Looking for New Challenges
 - ⚡ Fun fact: Professional sportsmen in a past
 
 
