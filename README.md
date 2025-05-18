@@ -1,8 +1,6 @@
 ### Hi there, I'm Yaroslav!
 
-- 🌱 I’m currently learning everything 🤣
-- ⚡ Fun fact: Professional sportsmen in a past
-
+- 🌱 I’m currently learning everything
 
 ### Connect with me:
 
